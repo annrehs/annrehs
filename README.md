@@ -1,8 +1,8 @@
-<div align="center">
+
   
 # 🐰✨ Hello there, lovely humans! ✨🐰
 
-<div align="center">
+
   
 
 *Welcome to Sher-Ann's cozy little corner of the internet!* 🌸
